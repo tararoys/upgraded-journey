@@ -64,3 +64,9 @@ All 40 chickens use the same 10 boxes, but there are some boxes the chickens cle
 
 ![These chickens have a creek 200 feet away that they can go get water from, but it is still important to keep their water dish is full for two reasons: one, it makes getting water convenient and it encourages them to range uphill into the field as well as downhill to the creek, end it also keeps me in the good habit I'm giving the chickens everything they need.](14_May_2021_08_19_18.jpg)
 
+
+
+ 
+
+![As I walk back up the lane, I stopped to check on how the plum tree is coming along. Last week it was far more spectacular, with several branches having plum blossoms. Now the blossoms are starting to fade, and we'll see whether the frost last week killed them or if this is the beginning of their growth into fruit.](14_May_2021_08_24_01.jpg)
+
