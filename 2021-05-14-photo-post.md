@@ -30,3 +30,7 @@ There are many things to see while walking the quarter mile Down the driveway to
 
 ![A brown chicken walking out of the small rectangular hole that is the chicken coop door. The whole is about 14 inches high and 10 inches wide. The whole is surrounded by unpainted, heavily weathered Gray planks of wood that look understandable extremely rough. The weathering has given them a silvery gray appearance](14_May_2021_07_59_04.jpg)
 
+
+
+It takes about two minutes for all 40 chickens to squeeze them self one by one out of the chicken coop door and into the sunlight.  Often they come bursting out of the door at a run, like a grapeseed bursting out of the school used grape.  Given that there are 40 other chickens squeezing behind them pressuring them to get out of the way, it's no surprise they come out at a run. And they also race towards whatever kitchen scraps and garbage I have put out for them. 
+
