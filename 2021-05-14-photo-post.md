@@ -44,3 +44,9 @@ It takes about two minutes for all 40 chickens to squeeze them self one by one o
 
 These chickens still like the regular food in addition to all the kitchen scraps, grass, bugs, worms, and other treats they get because they range freely outside. 
 
+
+
+ 
+
+![A picture of 10 wall Montague nesting boxes. The nesting boxes are square 10 boxes that are a little over a square foot in volume, line with straw, and begin up for a single chicken to sit and lay her daily egg.  In this picture six out of 10 of the nesting boxes have a grumpy looking brown hen in them.](14_May_2021_08_10_16.jpg)
+
