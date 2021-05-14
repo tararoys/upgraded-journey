@@ -58,3 +58,9 @@ These chickens still like the regular food in addition to all the kitchen scraps
 
 All 40 chickens use the same 10 boxes, but there are some boxes the chickens clearly like more than others. Often there will be 10 eggs in a single box and no eggs in its neighbor. 
 
+
+
+ 
+
+![These chickens have a creek 200 feet away that they can go get water from, but it is still important to keep their water dish is full for two reasons: one, it makes getting water convenient and it encourages them to range uphill into the field as well as downhill to the creek, end it also keeps me in the good habit I'm giving the chickens everything they need.](14_May_2021_08_19_18.jpg)
+
