@@ -18,3 +18,9 @@ Junior, Black beauty, and midnight are sitting on the deck enjoying the sunshine
 
 There are many things to see while walking the quarter mile Down the driveway to the chicken house to let the chickens out in the morning. It is easy to get in a rush and hurry through the chores, but while at all needs to get done, it's never so urgent that it needs to be done in a hurry. 
 
+
+
+ 
+
+![One brown hen hearing through chicken wire. She is perched on a windowsill, and probably is there because she's successfully fought off the other 40 chickens so that she could have this crimes thought all to herself. More than 20 chickens crowd behind her in the shadowy chicken coop.](14_May_2021_07_56_41.jpg)
+
