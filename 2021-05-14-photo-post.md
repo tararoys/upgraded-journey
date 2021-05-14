@@ -24,3 +24,9 @@ There are many things to see while walking the quarter mile Down the driveway to
 
 ![One brown hen hearing through chicken wire. She is perched on a windowsill, and probably is there because she's successfully fought off the other 40 chickens so that she could have this crimes thought all to herself. More than 20 chickens crowd behind her in the shadowy chicken coop.](14_May_2021_07_56_41.jpg)
 
+
+
+ 
+
+![A brown chicken walking out of the small rectangular hole that is the chicken coop door. The whole is about 14 inches high and 10 inches wide. The whole is surrounded by unpainted, heavily weathered Gray planks of wood that look understandable extremely rough. The weathering has given them a silvery gray appearance](14_May_2021_07_59_04.jpg)
+
