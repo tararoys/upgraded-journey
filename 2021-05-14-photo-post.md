@@ -40,3 +40,7 @@ It takes about two minutes for all 40 chickens to squeeze them self one by one o
 
 ![Although chickens love the grass and bugs and garbage, they also swarm the standard corn, oats, and feed mix I put out in the pans.  The feed is very nutritionally dense, which chickens that run around and are as active as this crew need in order to keep up their energy and lay their daily egg.](14_May_2021_08_04_56.jpg)
 
+
+
+These chickens still like the regular food in addition to all the kitchen scraps, grass, bugs, worms, and other treats they get because they range freely outside. 
+
