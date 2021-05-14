@@ -34,3 +34,9 @@ There are many things to see while walking the quarter mile Down the driveway to
 
 It takes about two minutes for all 40 chickens to squeeze them self one by one out of the chicken coop door and into the sunlight.  Often they come bursting out of the door at a run, like a grapeseed bursting out of the school used grape.  Given that there are 40 other chickens squeezing behind them pressuring them to get out of the way, it's no surprise they come out at a run. And they also race towards whatever kitchen scraps and garbage I have put out for them. 
 
+
+
+ 
+
+![Although chickens love the grass and bugs and garbage, they also swarm the standard corn, oats, and feed mix I put out in the pans.  The feed is very nutritionally dense, which chickens that run around and are as active as this crew need in order to keep up their energy and lay their daily egg.](14_May_2021_08_04_56.jpg)
+
