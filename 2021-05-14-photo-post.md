@@ -54,3 +54,7 @@ These chickens still like the regular food in addition to all the kitchen scraps
 
  
 
+
+
+All 40 chickens use the same 10 boxes, but there are some boxes the chickens clearly like more than others. Often there will be 10 eggs in a single box and no eggs in its neighbor. 
+
