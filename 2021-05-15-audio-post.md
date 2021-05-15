@@ -235,3 +235,17 @@ To optimize.
 ``` 
 
 [audio](15_May_2021_11_29_09.m4a)
+
+```md
+And then go make the system
+So easy and nice
+To maintain all its parts
+So no thinking twice
+About if it is working
+Or knowing it's "quirks”
+It just does the thing
+It just goes and works.
+
+``` 
+
+[audio](15_May_2021_11_30_43.m4a)
