@@ -50,3 +50,16 @@ How do use the strength to make ERMI better?
 ``` 
 
 [audio](15_May_2021_10_12_12.m4a)
+
+```md
+I get hit by cars!
+I burn down the kitchen.
+That's just stuff that happens.
+So designed for that mission!
+Do not make me cook.
+Don't make me cross roads.
+Let me stick to research
+And scripting the codes
+``` 
+
+[audio](15_May_2021_10_13_16.m4a)
