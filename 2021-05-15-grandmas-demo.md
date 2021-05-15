@@ -8,3 +8,7 @@
 
 Grandma and I have had a delicious liver and onions dinner. 
 
+
+
+See how easy it is to add text to this blog? 
+
