@@ -222,3 +222,16 @@ And where energy’s lost
 ``` 
 
 [audio](15_May_2021_11_26_55.m4a)
+
+```md
+Find out what takes the longest
+And find people for whom
+That hard thing is easy
+And then leave the room
+And go to the things
+You find easy. It's wise.
+That is the way
+To optimize.
+``` 
+
+[audio](15_May_2021_11_29_09.m4a)
