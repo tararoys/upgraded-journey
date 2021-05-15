@@ -173,3 +173,10 @@ That's why plastic is better than metal and such
 ``` 
 
 [audio](15_May_2021_10_39_03.m4a)
+
+But wait, you might say, you expect to get hit?
+Well, yes, based on my past I do expect it
+Because yes, it has happened (more than once, by the way.
+But how many times more than once I won't say) 
+
+[audio](15_May_2021_10_40_13.m4a)
