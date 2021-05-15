@@ -190,3 +190,12 @@ The bruises are smaller, and, in the end
 ``` 
 
 [audio](15_May_2021_10_41_29.m4a)
+
+```md
+I reflected my life so that now I don't go
+Near the cards and the roads, and that just goes to show
+It works best to respect what I canning can't do
+And mixing with cars? Nah.  I'll leave that to you.
+``` 
+
+[audio](15_May_2021_10_43_26.m4a)
