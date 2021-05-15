@@ -281,3 +281,16 @@ Anyways
 ``` 
 
 [audio](15_May_2021_11_43_00.m4a)
+
+```md
+There’s no reason to build
+Some special code base
+To handle a week
+A weeks just a case
+Five days
+And a day I can already do
+I just do it five times
+The processing’s through
+``` 
+
+[audio](15_May_2021_11_44_07.m4a)
