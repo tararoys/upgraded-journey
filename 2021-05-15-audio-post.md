@@ -268,3 +268,16 @@ OK, keep it simple, geek.
 ``` 
 
 [audio](15_May_2021_11_41_57.m4a)
+
+```md
+A week, you could say
+Is five separate days
+So run the code five times
+One for each day
+Line the days up, and, say! 
+And you’ve got week. Tadah!
+Anyways
+
+``` 
+
+[audio](15_May_2021_11_43_00.m4a)
