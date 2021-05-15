@@ -33,3 +33,12 @@ And turn some new gears
 ``` 
 
 [audio](15_May_2021_10_05_49.m4a)
+
+```md
+I am great at some things
+I am awful at others
+I've energy limits
+And talking? Oh brother.
+``` 
+
+[audio](15_May_2021_10_07_51.m4a)
