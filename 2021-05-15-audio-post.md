@@ -23,3 +23,13 @@ Done well and done cheaply
 ``` 
 
 [audio](15_May_2021_10_04_10.m4a)
+
+```md
+Engineering with autism
+Or Autisming Engineers.
+Let's do a crossover
+And turn some new gears
+
+``` 
+
+[audio](15_May_2021_10_05_49.m4a)
