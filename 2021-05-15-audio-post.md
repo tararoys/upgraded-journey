@@ -249,3 +249,13 @@ It just goes and works.
 ``` 
 
 [audio](15_May_2021_11_30_43.m4a)
+
+```md
+Our software takes a day of data
+Conscious data for that day
+Ignores all of the errata
+And spits out what's not OK
+
+``` 
+
+[audio](15_May_2021_11_32_25.m4a)
