@@ -148,3 +148,13 @@ That's all that there is to it
 ``` 
 
 [audio](15_May_2021_10_34_15.m4a)
+
+```md
+Our clients use our sheets
+to find all kinds of interesting things
+They pull a thread and go ahead
+And see what that string brings
+
+``` 
+
+[audio](15_May_2021_10_35_05.m4a)
