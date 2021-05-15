@@ -180,3 +180,13 @@ Because yes, it has happened (more than once, by the way.
 But how many times more than once I won't say) 
 
 [audio](15_May_2021_10_40_13.m4a)
+
+```md
+But it does to lead to thoughts like the Audi is quite nice
+If you simply must get run down
+Go with Audi, my friend
+The bruises are smaller, and, in the end
+
+``` 
+
+[audio](15_May_2021_10_41_29.m4a)
