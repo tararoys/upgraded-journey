@@ -63,3 +63,19 @@ And scripting the codes
 ``` 
 
 [audio](15_May_2021_10_13_16.m4a)
+
+```md
+So now I treat cooking
+Just like it's a script
+I make just one meal
+Like it's code to be shipped
+Pasta every day
+Made exactly the same way
+And hey?
+Maybe I don't have to cook?
+I could hire a person
+To cook pasta. Look!
+
+``` 
+
+[audio](15_May_2021_10_15_19.m4a)
