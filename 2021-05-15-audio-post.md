@@ -85,3 +85,17 @@ The origins of the ERMI: a charming Christmas tailed.
 ``` 
 
 [audio](15_May_2021_10_17_57.m4a)
+
+```md
+Once upon a Christmas time
+The audit terror was coming
+And then the lawyer saves the day
+With excel programs running
+He calls upon his coder friend
+Two guys, this data plumbing
+To reveal the fraud that was there by God
+Instead of just succumbing
+
+``` 
+
+[audio](15_May_2021_10_18_48.m4a)
