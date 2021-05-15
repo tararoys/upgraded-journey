@@ -99,3 +99,12 @@ Instead of just succumbing
 ``` 
 
 [audio](15_May_2021_10_18_48.m4a)
+
+```md
+Three epic days of hacking
+To turn a million spreadsheet rows
+To a simple one page sheet
+Fraud is what this quick sheet shows.
+``` 
+
+[audio](15_May_2021_10_21_36.m4a)
