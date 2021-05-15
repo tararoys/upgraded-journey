@@ -158,3 +158,9 @@ And see what that string brings
 ``` 
 
 [audio](15_May_2021_10_35_05.m4a)
+
+```md
+Ode to the cars I have been run over by (in honor of Jamie)
+``` 
+
+[audio](15_May_2021_10_36_18.m4a)
