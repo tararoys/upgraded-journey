@@ -140,3 +140,11 @@ No pressure, lalalala...
 ``` 
 
 [audio](15_May_2021_10_33_01.m4a)
+
+```md
+Because that's not why we do it
+We find the problem interesting
+That's all that there is to it
+``` 
+
+[audio](15_May_2021_10_34_15.m4a)
