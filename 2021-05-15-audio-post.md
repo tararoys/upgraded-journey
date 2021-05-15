@@ -44,3 +44,9 @@ And talking? Oh brother
 ``` 
 
 [audio](15_May_2021_10_11_08.m4a)
+
+```md
+How do use the strength to make ERMI better?
+``` 
+
+[audio](15_May_2021_10_12_12.m4a)
