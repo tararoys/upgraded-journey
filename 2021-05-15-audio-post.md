@@ -128,3 +128,15 @@ Because their sheet showed who to blame
 ``` 
 
 [audio](15_May_2021_10_31_20.m4a)
+
+```md
+This tool we have created
+It has saved peoples lives
+And other scary stuff
+That makes us break out in hives
+If we think of it too deeply
+
+No pressure, lalalala...
+``` 
+
+[audio](15_May_2021_10_33_01.m4a)
