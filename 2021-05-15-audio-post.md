@@ -199,3 +199,9 @@ And mixing with cars? Nah.  I'll leave that to you.
 ``` 
 
 [audio](15_May_2021_10_43_26.m4a)
+
+```md
+Profile and optimization
+``` 
+
+[audio](15_May_2021_11_26_11.m4a)
