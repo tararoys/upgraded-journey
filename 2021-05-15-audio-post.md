@@ -118,3 +118,13 @@ The sheet to go create
 ``` 
 
 [audio](15_May_2021_10_30_15.m4a)
+
+```md
+And the lawyer and the coder
+Reluctantly became
+A finance company
+Because their sheet showed who to blame
+
+``` 
+
+[audio](15_May_2021_10_31_20.m4a)
