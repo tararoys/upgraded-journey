@@ -108,3 +108,13 @@ Fraud is what this quick sheet shows.
 ``` 
 
 [audio](15_May_2021_10_21_36.m4a)
+
+```md
+And the friends said this is epic
+And the friend said this is great
+And the friends said we will pay you
+The sheet to go create
+
+``` 
+
+[audio](15_May_2021_10_30_15.m4a)
