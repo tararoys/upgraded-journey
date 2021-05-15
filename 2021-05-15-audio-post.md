@@ -164,3 +164,12 @@ Ode to the cars I have been run over by (in honor of Jamie)
 ``` 
 
 [audio](15_May_2021_10_36_18.m4a)
+
+```md
+My favorite cars are not really a stumper
+I like the ones with squishy front bumpers
+So that when I am hit it don't hurt quite as much
+That's why plastic is better than metal and such
+``` 
+
+[audio](15_May_2021_10_39_03.m4a)
