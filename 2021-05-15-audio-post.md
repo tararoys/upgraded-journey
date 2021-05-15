@@ -294,3 +294,10 @@ The processing’s through
 ``` 
 
 [audio](15_May_2021_11_44_07.m4a)
+
+```md
+So we take it one day at a time
+Breaking things down is sublime.
+``` 
+
+[audio](15_May_2021_11_45_40.m4a)
