@@ -205,3 +205,20 @@ Profile and optimization
 ``` 
 
 [audio](15_May_2021_11_26_11.m4a)
+
+```md
+Find the true cost of some thing
+Find the energy spent
+Find how hard it will be
+And ignore the dissent
+Of people who say
+This can't be that hard
+They don't know the road
+And they disregard
+That you have to test out
+And find the true cost
+To know where the gains are
+And where energy’s lost
+``` 
+
+[audio](15_May_2021_11_26_55.m4a)
