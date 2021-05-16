@@ -8,7 +8,5 @@
 
  
 
-![Chicken picnic. 
-
-Bales of fun.](16_May_2021_18_30_48.gif)
+![Chicken picnic. Bales of fun.](16_May_2021_18_30_48.gif)
 
