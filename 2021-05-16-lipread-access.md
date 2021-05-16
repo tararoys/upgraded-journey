@@ -22,3 +22,9 @@
 
 ![I'd love to talk a lot more about your offer to rubber duck ideas to make the world way more accessible and to get finances and money for disabled folks like us. 🐤](16_May_2021_12_05_49.gif)
 
+
+
+ 
+
+![You mentioned earlier that it's a lot easier to participate when you can read lips and when things have captions, so I spent the last two days tweaking my GIF making script to make it easy for me to add captions to GIFs like this.](16_May_2021_12_09_37.gif)
+
