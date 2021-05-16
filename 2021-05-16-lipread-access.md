@@ -16,3 +16,9 @@
 
 ![And after I'm done editing, I press the OK button and it makes the GIF with the text ready to send off to whoever I want to send it to.](16_May_2021_11_47_04.gif)
 
+
+
+ 
+
+![I'd love to talk a lot more about your offer to rubber duck ideas to make the world way more accessible and to get finances and money for disabled folks like us. 🐤](16_May_2021_12_05_49.gif)
+
