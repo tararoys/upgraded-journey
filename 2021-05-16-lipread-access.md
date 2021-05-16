@@ -28,3 +28,9 @@
 
 ![You mentioned earlier that it's a lot easier to participate when you can read lips and when things have captions, so I spent the last two days tweaking my GIF making script to make it easy for me to add captions to GIFs like this.](16_May_2021_12_09_37.gif)
 
+
+
+ 
+
+![So whenever you have the spoons 🥄 I'd love to hear if this GIF thing worked or not.](16_May_2021_12_16_03.gif)
+
